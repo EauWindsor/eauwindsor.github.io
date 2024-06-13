@@ -1,1 +1,1 @@
-谢谢你触摸，理解和关爱我的生命
+You were a summer thunderstorm on my draught of golden sunshine days.
